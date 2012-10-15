@@ -1,3 +1,3 @@
 #DISCUN
 
-Donde toda la gilada pone gratirola sus discos.
+Discos lindos y gratis made in Uruguay.
